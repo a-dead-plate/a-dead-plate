@@ -5,7 +5,7 @@
   avstræt <small>/pronounced:abstract/</small>
   <br>
   <br>
-  he/it/they
+  xe/em/they
   <br>
   <br>
   alter in the forget-me-not system !
