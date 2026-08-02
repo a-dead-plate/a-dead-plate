@@ -2,5 +2,5 @@
 <div align=center>
   <img src=https://komarev.com/ghpvc/?username=a-dead-plate&color=8C535F&style=flat-square>
   <br>
-  $${\color{#8C535F}avestræt}$$
 </div>
+$${\color{#8C535F}avstræt}$$ <small>pronounced:abstract</small>
