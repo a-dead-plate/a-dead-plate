@@ -6,4 +6,7 @@
   <br>
   <br>
   alter in the forget-me-not system !
+  <br>
+  <br>
+  <img src=https://readme-typing-svg.herokuapp.com?font=Jacquarda+Bastarda+9+Charted&duration=500&pause=50&color=853B4D&center=true&repeat=false&width=435&lines=I+heard+that;Vanta+said+that;RETRO+said+that;Suqi+said+that;Pastel+said+that;Zaph+said+that;Baz+said+that;Cosmo+said+that;Flare+said;Ebhht+said;Teqpy+said+that;Chair+said+that;Kaite+said+that;Julia+said+that;Nerf+said+that;Vivi+said+that;Zixu+said+that;Samuel+said+that;Charlie+said+that;Liber+said+that;Earl+said+that;Nova+said+that;Noah+said+that;Dan+said+that;Oliver%2FSomething+said+that;Blossom+said+that;Mousy+said+that;Bread+said+that;Kyle+said+that;%22Wait%2C+what'd+they+say+again%3F%22;*Sigh*>
 </div>
